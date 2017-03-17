@@ -1,1 +1,0 @@
-# whickey.github.io
